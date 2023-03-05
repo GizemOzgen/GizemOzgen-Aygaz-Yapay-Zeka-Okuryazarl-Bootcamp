@@ -1,0 +1,1 @@
+# GizemOzgen-Aygaz-Yapay-Zeka-Okuryazarl-Bootcamp
